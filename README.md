@@ -1,0 +1,1 @@
+This website contains details about our university's Department of Knowledge Engineering. It showcases comprehensive information, including faculty details, student information, research scholars, events, awards, publications, celebrations, industrial visits, club activities, and more.
